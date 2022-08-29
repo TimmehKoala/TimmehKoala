@@ -1,0 +1,5 @@
+- 👋 Hello, Names: @TimmehKoala
+- 👀 Interested: Exploit Script's for:[Roblox]:
+- 🌱 Currently learning: How to code in lua
+- 📖 Looking to collaborate: Discrod User <TimmehKoala#3424>
+- 📫 How to reach me: TimmehKoala@outlook.com
